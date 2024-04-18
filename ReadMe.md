@@ -1,4 +1,3 @@
-# 💫 About Me:
 BIAM IN YOUR AREAA 🖤💗 <br>🧑‍💻 I’m currently looking for new opportunity as Content Creator and Designer<br>📧 Send me an email bahtian.ilham@gmail.com
 
 
